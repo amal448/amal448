@@ -13,7 +13,7 @@
 
 - ⚡ Fun fact **"I'm committed to self-improvement and skill development."**
 
-<h3 align="left">Connect with me:</h3>
+
 <p align="left">
 </p>
 
